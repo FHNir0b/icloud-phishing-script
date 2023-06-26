@@ -4,7 +4,7 @@
 - Otp code get in email or bot
 
 
-- buy for DM https://t.me/RdpVpsSellar
+- buy for DM https://t.me/Rdp_VpsSellar
 
 - Teligram (DEMO VIDEO) https://t.me/FreeRDPvpsBIN/1881
 
